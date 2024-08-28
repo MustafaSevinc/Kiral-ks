@@ -1,0 +1,2 @@
+# Kiral-ks
+kiralık daireler
